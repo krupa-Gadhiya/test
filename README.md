@@ -1,4 +1,2 @@
 # Krupa
-Last one!!!
-
-yooo
+just try
