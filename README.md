@@ -1,2 +1,2 @@
-# Krupa
-just try
+# My
+i'm krupa
